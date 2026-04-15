@@ -17,12 +17,12 @@
 
 ## Miyama with Hydrangea Blooms
 2024-10-14<br>
-![Miyama with Hydrangea Blooms](images/2024-10-14-Miyama_with_Hydrangea_Blooms.jpg)
+![Miyama with Hydrangea Blooms](images/2024-10-14-Miyama_Hydrangea_Blooms.jpg)
 <br>1000 pieces
 
 ## Autumn Leaves of Arashiyama Hozu Gorge
 2024-10-07<br>
-![Autumn Leaves of Arashiyama Hozu Gorge](images/2024-10-07-Autumn_Leaves_of_Arashiyama_Hozu_Gorge.jpg)
+![Autumn Leaves of Arashiyama Hozu Gorge](images/2024-10-07-Arashiyama_Hozu_Gorge.jpg)
 <br>1000 pieces
 
 ## Kyochaya in Autumn
